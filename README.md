@@ -1,6 +1,6 @@
 ## Hi, I'm Felix <br>
 
-3rd Year IT student at Arcada University of Applied Sciences<br>
+4th Year IT student at Arcada University of Applied Sciences<br>
 
 
 ## 🌐 Socials:
